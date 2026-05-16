@@ -1,4 +1,4 @@
-
+rare Encrypt.me Extension | high-speed-servers + OpenVPN-support offers the most advanced Encrypt.me extension, with high-speed-servers and OpenVPN-support. Ideal for users who
 
 
 
